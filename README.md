@@ -2,4 +2,4 @@
 ## Integrantes
 - Maximiliano Bazán
 - Leonardo Luna
-- Marcos Sanhueza
+- Marcos Sanhueza, 22, Cutral Có
